@@ -1,4 +1,4 @@
-# Hi there, I'm JimenaD-creator! 👋
+# Hi there, I'm Jimena Díaz Franco! 👋
 
 🎓 **Computer Science & Technology Student**  
 Currently pursuing my Bachelor’s degree at Tecnológico de Monterrey, Guadalajara.
